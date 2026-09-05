@@ -1,6 +1,6 @@
-<p align="center"> ${\textsf{\color{#dac8f1} "⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹" }}$
+<p align="center"> ${\textsf{\color{#dac8f1} ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ }}$
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=parsleybotch&label=Hii+Hello!&color=dac8f1&style=flat" alt="parsleybotch" />
-<p align="center"> ${\textsf{\color{#edddec} "ℓo͟v͟ꫀ ყoυ .ᐟ" }}$
+<p align="center"> ${\textsf{\color{#edddec} ℓo͟v͟ꫀ ყoυ .ᐟ }}$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Dancing+Script&size=35&pause=1000&color=b8a6dd&width=435&lines=You+made+me+love+you%2C;and+then+you+made+me+love+myself.)](https://git.io/typing-svg)
 
@@ -9,7 +9,7 @@
 
 
 
-<p align="center"> જ⁀➴ ♡ , 6𝐭𝐞𝐞𝐧
+<p align="center"> ${\textsf{\color{#a4ff00} જ⁀➴ ♡ }}$ ${\textsf{\color{#a4ff00} , 6𝐭𝐞𝐞𝐧 }}$
 
 <details>
   <summary>About</summary>
