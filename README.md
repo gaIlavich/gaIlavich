@@ -11,7 +11,7 @@
 
 
 
-<p align="center"> ${\textsf{\color{#c0b9dd} જ⁀➴ ♡ , }}$ ${\textsf{\color{#ded9e2} 6𝐭𝐞𝐞𝐧 }}$ ${\textsf{\color{#b8a6dd} any }}$
+<p align="center"> ${\textsf{\color{#c0b9dd} જ⁀➴ ♡ , }}$ ${\textsf{\color{#ded9e2} 6𝐭𝐞𝐞𝐧 }}$ ${\textsf{\color{#b8a6dd} 𝓘'𝓵𝓵 𝔀𝓪𝓲𝓽 𝓯𝓸𝓻 𝔂𝓸𝓾. }}$
 
 <details>
   <summary>About</summary>
