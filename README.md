@@ -15,9 +15,7 @@
 
 <details>
   <summary>About</summary>
-  I have no inspo or anything, I don't wanna make this pretty no more (⁠╯⁠︵⁠╰⁠,⁠)
-  
-  work in progress, I work VERY slow so might take months
+  feel free to interact, I'm mostly just hanging around ^^
 
-  also no strawpage and ata, I might make them whenever I'm free
+  I don't bite!! I just don't read whispers sometime, and often disconnect before I could even answer you guys 💔
 </details>
