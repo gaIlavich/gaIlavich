@@ -9,7 +9,7 @@
 
 
 
-<p align="center"> ${\textsf{\color{#a4ff00} જ⁀➴ ♡ }}$ ${\textsf{\color{#a4ff00} , 6𝐭𝐞𝐞𝐧 }}$
+<p align="center"> ${\textsf{\color{#c0b9dd} જ⁀➴ ♡ , }}$ ${\textsf{\color{#ded9e2} 6𝐭𝐞𝐞𝐧 }}$
 
 <details>
   <summary>About</summary>
