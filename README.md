@@ -8,7 +8,7 @@
 <p align="center"> <img width="736" height="291" alt="ebf8bb614f569fb40a4cd0d28c740a1d" src="https://github.com/user-attachments/assets/ca91b22d-8859-43b3-a736-8417123651e3" />
 
 
-<p align="center"> name , age
+<p align="center"> જ⁀➴ ♡ , 6𝐭𝐞𝐞𝐧
 
 <details>
   <summary>Click to expand</summary>
