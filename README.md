@@ -18,4 +18,6 @@
   I have no inspo or anything, I don't wanna make this pretty no more (⁠╯⁠︵⁠╰⁠,⁠)
   
   work in progress, I work VERY slow so might take months
+
+  also no strawpage and ata, I might make them whenever I'm free
 </details>
