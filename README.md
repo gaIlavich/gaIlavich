@@ -5,7 +5,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Dancing+Script&size=35&pause=1000&color=b8a6dd&width=435&lines=You+made+me+love+you%2C;and+then+you+made+me+love+myself.)](https://git.io/typing-svg)
 
 
-<p align="center"> <img width="736" height="291" alt="ebf8bb614f569fb40a4cd0d28c740a1d" src="https://github.com/user-attachments/assets/ca91b22d-8859-43b3-a736-8417123651e3" />
+<p align="center"> <img width="736" height="291" alt="Untitled41_20260905202051" src="https://github.com/user-attachments/assets/3afa0809-829b-4356-a61e-0d636f2d6a5b" />
+
 
 
 <p align="center"> જ⁀➴ ♡ , 6𝐭𝐞𝐞𝐧
