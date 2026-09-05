@@ -1,5 +1,5 @@
 <p align="center"> ${\textsf{\color{#dac8f1} ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ }}$
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=parsleybotch&label=Hii+Hello!&color=dac8f1&style=flat" alt="parsleybotch" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=parsleybotch&label=˙𐃷˙!&color=dac8f1&style=flat" alt="parsleybotch" />
 <p align="center"> ${\textsf{\color{#edddec} ℓo͟v͟ꫀ ყoυ .ᐟ }}$
 
 <p align="center"> <img width="50" height="50" alt="1893" src="https://github.com/user-attachments/assets/30823f8e-a1bd-4084-a862-5e85425f6e46" /><img width="50" height="50" alt="1893" src="https://github.com/user-attachments/assets/30823f8e-a1bd-4084-a862-5e85425f6e46" /><img width="50" height="50" alt="1893" src="https://github.com/user-attachments/assets/30823f8e-a1bd-4084-a862-5e85425f6e46" /><img width="50" height="50" alt="1893" src="https://github.com/user-attachments/assets/30823f8e-a1bd-4084-a862-5e85425f6e46" /><img width="50" height="50" alt="1893" src="https://github.com/user-attachments/assets/30823f8e-a1bd-4084-a862-5e85425f6e46" />
