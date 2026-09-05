@@ -11,6 +11,8 @@
 <p align="center"> જ⁀➴ ♡ , 6𝐭𝐞𝐞𝐧
 
 <details>
-  <summary>Click to expand</summary>
-  This text is hidden until you click the summary above.
+  <summary>About</summary>
+  I have no inspo or anything, I don't wanna make this pretty no more (⁠╯⁠︵⁠╰⁠,⁠)
+  
+  work in progress, I work VERY slow so might take months
 </details>
