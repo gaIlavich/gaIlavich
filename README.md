@@ -4,3 +4,10 @@
 
 
 <p align="center"> <img width="736" height="291" alt="ebf8bb614f569fb40a4cd0d28c740a1d" src="https://github.com/user-attachments/assets/92fc7e44-faba-41c2-b796-d55c50689805" />
+
+<p align="center"> name , age
+
+<details>
+  <summary>Click to expand</summary>
+  This text is hidden until you click the summary above.
+</details>
