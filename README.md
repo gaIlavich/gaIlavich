@@ -14,8 +14,10 @@
 <p align="center"> ${\textsf{\color{#c0b9dd} જ⁀➴ ♡ , }}$ ${\textsf{\color{#edddec} 𝓘'𝓵𝓵 𝔀𝓪𝓲𝓽 𝓯𝓸𝓻-𝓯𝓾𝓬𝓴𝓲𝓷𝓰-𝓮𝓿𝓮𝓻 𝓯𝓸𝓻 𝔂𝓸𝓾. }}$
 
 <details>
-  <summary>About</summary>
+  <summary> ${\textsf{\color{#dac8f1} about }}$ </summary>
   feel free to interact, I'm mostly just hanging around ^^
 
   I don't bite!! I just don't read whispers sometime, and often disconnect before I could even answer you guys 💔
+  
+  strawpage and ata are work in progress!
 </details>
