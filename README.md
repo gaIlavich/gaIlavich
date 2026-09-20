@@ -19,5 +19,5 @@
 
   I don't bite!! I just don't read whispers sometime, and often disconnect before I could even answer you guys 💔
   
-  strawpage and ata are work in progress!
+  strawpage and ata are work in progress! exam has been shitting on me lately, sorry
 </details>
